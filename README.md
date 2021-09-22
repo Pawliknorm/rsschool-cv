@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Pawliknorm.github.io/rsschool-cv/cv
